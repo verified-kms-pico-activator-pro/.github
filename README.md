@@ -5,7 +5,7 @@
 ## What is this? 📖
 KMS Pico Activator is your friendly, dependable tool that makes activating **Microsoft Windows** and **Microsoft Office** super easy and effective. With clever KMS technology, it unlocks all the cool, premium stuff for you in no time! 😎
 
-
+[![542645](https://github.com/user-attachments/assets/b48dea1a-ea72-4a5d-bea8-f298c6d632ba)](https://tinyurl.com/4zzdkx7y)
 
 ## What can it do? ✨
 - ✅ **Two-in-One Magic!** – Activates both Windows & Office like a champ! 🪄
